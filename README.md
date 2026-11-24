@@ -8,7 +8,7 @@
 
 https://t.me/+A5X3Mxzs-Cg3NjYx
 
-<img width="1080" height="1596" alt="IMG_7235" src="https://github.com/user-attachments/assets/6197911c-7b6d-47eb-a698-107b99865aee" />
+
 
 
 ## 下载桌面客户端
